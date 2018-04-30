@@ -1,3 +1,3 @@
 - Yeah 
-* The
+- The
 - Boys
